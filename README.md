@@ -8,5 +8,3 @@ Wszystko jest free-to-copy (chociaż szczerze wątpię, że ktokolwiek chciałby
 
 
 ~ Oskar, 2022
-
-
